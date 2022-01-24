@@ -7,7 +7,7 @@
 -  ![271178598_1398136523973029_7381851395169129840_n](https://user-images.githubusercontent.com/98099789/150761233-e6bc7efe-aafa-4750-a21e-387c787a9397.jpg)
 - 💞️ These are my dear friends I made in college.
 -  ![271715370_470690551234852_8986162428138075166_n](https://user-images.githubusercontent.com/98099789/150762673-859dab43-0bd3-401d-b372-64fa8f4d8d0e.jpg)
--  Since I went to college, I really like Hsinchu, because the weather here is always so clear and the sky is beautiful.
+- 🌃 Since I went to college, I really like Hsinchu, because the weather here is always so clear and the sky is beautiful.
 
 <!---
 Hao-ShiuanYang/Hao-ShiuanYang is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
